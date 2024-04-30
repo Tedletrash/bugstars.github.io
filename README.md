@@ -1,1 +1,1 @@
-# bugstars.github.io
+# tedletrash.github.io
